@@ -1,2 +1,1 @@
-# -instacrackm
-İnstagram hack
+# - instacrackm
